@@ -1,1 +1,1 @@
-# Adios store v2 for fun :Dg
+# Adios store v2 for fun :D
